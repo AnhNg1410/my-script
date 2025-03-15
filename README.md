@@ -1,2 +1,39 @@
 # my-script
 A repository about my script to exploit vulnerabilities
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+By AnhNg with love <3 --- 2:03 - 15/03/2025
